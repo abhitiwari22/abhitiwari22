@@ -1,1 +1,2 @@
-# ![alt text](https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.analyticsvidhya.com%2Fblog%2F2021%2F06%2Fdata-science-and-its-common-misconceptions%2F&psig=AOvVaw3a6uclpHkT9edJzisarOiL&ust=1641476447512000&source=images&cd=vfe&ved=0CAsQjRxqFwoTCJjpwrXgmvUCFQAAAAAdAAAAABAQ)
+# ![alt text](https://github.com/abhitiwari22/abhitiwari22/blob/main/1_S6Nula7pjNALvSrdKRvQLA.jpeg)
+# Greetings  Respected viewers ![alt text]()
